@@ -1,0 +1,1 @@
+# Conicas-e-quadricas-scripts
